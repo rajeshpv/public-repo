@@ -15,6 +15,7 @@ Where cars do park for 10 mins to pickup mail, so adding another driveway makes 
 •	We have felt and understood the traffic and congestion, This will increase congestion at Cherokee, that too right at T-intersection.
 5) Recently I noticed a complaint from a resident who is not-living on Cherokee but on continuing-to-Cherokee road complain about parking on side of narrow road (by work truck) which describes the issue.
 (below link has masked what's app message link)
+https://github.com/rajeshpv/public-repo/blob/33a2b62b471c5d6e847cc513f83d583845d3c4b2/images/IW_whatsapp_msg_2.jpg
 
 So definitely NO from IW community perspective.
 
@@ -27,3 +28,5 @@ b) It blocks the open-view and light to my house which I enjoyed as open area in
  
  
 If increase of driveway sounds like a viable solution for more parking space say 2+cars. Then I have noticed few houses in Pantego cul-de-sac have broadened the drive way -, by even keeping entrance of drive way intact. Below is the link. 
+https://github.com/rajeshpv/public-repo/blob/33a2b62b471c5d6e847cc513f83d583845d3c4b2/images/IW_drive_expand.jpg 
+
